@@ -1,2 +1,2 @@
 # kobe 🐍
-🐍
+Mamba Mentality🗿
